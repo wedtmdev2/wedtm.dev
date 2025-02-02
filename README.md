@@ -78,3 +78,9 @@ Did not work on Minecraft only a Minecraft fan website.
 ![image](https://github.com/user-attachments/assets/e56b1b14-0979-4485-88ac-9706a771f2a6)
 
 [MatthewCWF July 2013](https://www.reddit.com/r/CubeWorld/comments/1i4i2l/comment)
+
+## Lie about paying bounty
+
+<a href="https://archive.is/ix6yY"><img src="https://github.com/user-attachments/assets/ba1514ec-fd77-4728-8725-079288f44c82" width="400"/></a>
+
+<img src="https://github.com/user-attachments/assets/e0e05555-f4de-41d8-915e-01e3c4a88fc7" />
