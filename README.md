@@ -81,6 +81,7 @@ Did not work on Minecraft only a Minecraft fan website.
 
 ## Lie about paying bounty
 
-<a href="https://archive.is/ix6yY"><img src="https://github.com/user-attachments/assets/ba1514ec-fd77-4728-8725-079288f44c82" width="400"/></a>
+<a href="https://archive.is/ix6yY"><img src="https://github.com/user-attachments/assets/d5dc0e0c-0cbe-40d3-b519-5d03d0710abe" width="400"/></a> <a href="https://archive.is/9OMZM"><img src="https://github.com/user-attachments/assets/f23a5194-6b8f-4c4d-ab85-7863a47d45f7" width="400" /></a>
 
 <img src="https://github.com/user-attachments/assets/e0e05555-f4de-41d8-915e-01e3c4a88fc7" />
+
